@@ -914,93 +914,69 @@ text only, because the page itself could not be opened.
 - Nusret Gökçe's January 2017 "Ottoman steak" clip, carving and seasoning the meat over his bent forearm: https://knowyourmeme.com/memes/salt-bae
 - His Nusr-Et restaurants, vest and sunglasses, and the copycat videos prompted by his finishing gesture: https://www.eater.com/2017/1/10/14223528/saltbae-meme
 
-## 220. Crab Rave
-- Noisestorm release, animated crabs, and remix usage: https://knowyourmeme.com/memes/crab-rave
-
-## 221. Another Fine Addition to My Collection
+## 220. Another Fine Addition to My Collection
 - General Grievous quotation and reaction-image context: https://knowyourmeme.com/memes/another-fine-addition-to-my-collection
 
-## 222. Is This a Pigeon?
+## 221. Is This a Pigeon?
 - Fighbird episode origin and reaction-image spread: https://knowyourmeme.com/memes/is-this-a-pigeon
 
-## 223. Am I a Joke to You?
+## 222. Am I a Joke to You?
 - Generations: The Legacy source and 2018 spread: https://meme.com/memes/am-i-a-joke-to-you
 
-## 224. Modern Problems Require Modern Solutions
+## 223. Modern Problems Require Modern Solutions
 - Chappelle's Show origin and 2018 reaction-image adoption: https://digitalcultures.net/memes/modern-problems-require-modern-solutions/
 
-## 225. Outstanding Move
+## 224. Outstanding Move
 - El País chess-video origin and English-caption usage: https://www.onlinesprache.de/memes/outstanding-move/
 
-## 226. A Small Price to Pay for Salvation
+## 225. A Small Price to Pay for Salvation
 - Infinity War origin and image-macro use for sacrifice: https://knowyourmeme.com/memes/a-small-price-to-pay-for-salvation
 
-## 227. Perfectly Balanced, as All Things Should Be
+## 226. Perfectly Balanced, as All Things Should Be
 - Thanos quotation and meme usage: https://en.wikiquote.org/wiki/Thanos
 
-## 228. I Am Once Again Asking
+## 227. I Am Once Again Asking
 - Sanders fundraising-video origin and meme template: https://knowyourmeme.com/memes/i-am-once-again-asking-for-your-financial-support
 
-## 229. crackhead
-- Dictionary definition of the slang term: https://dictionary.cambridge.org/us/dictionary/english/crackhead
-
-## 230. Kazoo Kid
+## 228. Kazoo Kid
 - Special Friends source, Brett Ambler, and viral-video history: https://knowyourmeme.com/memes/you-on-kazoo-kazoo-kid
 
-## 231. First World Problems
+## 229. First World Problems
 - Image-macro history and earlier phrase use: https://knowyourmeme.com/memes/first-world-problems/
 
-## 232. Ain't Nobody Got Time for That
+## 230. Ain't Nobody Got Time for That
 - Sweet Brown interview and subsequent remix context: https://en.wikipedia.org/wiki/Ain%27t_Nobody_Got_Time_for_That
 
-## 233. Back at It Again with the White Vans
+## 231. Back at It Again with the White Vans
 - Damn Daniel video, Joshua Holz, Daniel Lara, and viral spread: https://time.com/4232465/damn-daniel-viral-twitter-video-white-vans/
 
-## 234. But That's None of My Business
+## 232. But That's None of My Business
 - Kermit Sipping Tea image-macro origin and usage: https://knowyourmeme.com/memes/kermit-sipping-tea-but-thats-none-of-my-business
 
-## 235. Crying Jordan
+## 233. Crying Jordan
 - Associated Press photographer Stephan Savoia captured the tearful Hall of Fame induction image in Springfield, Massachusetts, in 2009: https://www.si.com/nba/2016/02/05/crying-michael-jordan-meme-original-photographer-viral-social-media
 - An April 2012 Charlotte Bobcats image macro, later pasted-face variants, and its use for sports defeats: https://knowyourmeme.com/memes/crying-michael-jordan
 
-## 236. Deep Fried Meme
+## 234. Deep Fried Meme
 - Tumblr origin, visual characteristics, and community spread: https://knowyourmeme.com/sensitive/memes/deep-fried-memes
 
-## 237. Ear Rape
+## 235. Ear Rape
 - YTMND origin and use for distorted, overly loud meme audio: https://knowyourmeme.com/memes/ear-rape
 
-## 238. Bonk, Go to Horny Jail
+## 236. Bonk, Go to Horny Jail
 - 2020 iFunny origin, Doge-and-Cheems image macro, and reaction use: https://knowyourmeme.com/memes/go-to-horny-jail/
 
-## 239. Understandable, Have a Great Day
+## 237. Understandable, Have a Great Day
 - Shaquille O'Neal drive-through macro, 2017 origin, and phrase variants: https://knowyourmeme.com/memes/understandable-have-a-nice-day
 
-## 240. Wait, That's Illegal
-- Red vs. Blue source episode and 2019 reaction-image spread: https://knowyourmeme.com/memes/wait-thats-illegal
-
-## 241. I See This as an Absolute Win
-- Endgame source scene and 2019 image-macro spread: https://knowyourmeme.com/memes/i-see-this-as-an-absolute-win
-
-## 242. They Had Us in the First Half, Not Gonna Lie
-- Apollos Hester interview, comeback context, and reaction usage: https://knowyourmeme.com/memes/they-had-us-in-the-first-half
-
-## 243. So Anyway, I Started Blasting
+## 238. So Anyway, I Started Blasting
 - It's Always Sunny source episode and 2019 reaction-image spread: https://knowyourmeme.com/memes/so-anyway-i-started-blasting
 
-## 244. Me at 3AM
-- AlliCattt Vine origin and late-night caption format: https://knowyourmeme.com/sensitive/memes/me-at-3am
-
-## 245. Nobody:
+## 239. Nobody:
 - September 2018 Twitter origin, early Spooktober post, J. K. Rowling variants, May 2019 TikTok effect, and caption structure for unprompted behavior: https://knowyourmeme.com/memes/nobody
 
-## 246. Blinking White Guy
+## 240. Blinking White Guy
 - Drew Scanlon's 2013 Giant Bomb Starbound reaction to Jeff Gerstmann's farming joke, the 2015 NeoGAF GIF, and the viral 2017 biology-class tweet: https://knowyourmeme.com/memes/blinking-white-guy
 - Scanlon's account of using the GIF's fame to support Bike MS rides for friends living with multiple sclerosis: https://knowyourmeme.com/editorials/interviews/drew-scanlon-shares-the-legend-of-becoming-blinking-white-guy-and-how-he-used-the-power-of-memes-to-help-others
 - The visual expression and reaction-image use: https://www.theguardian.com/technology/2017/feb/23/meet-the-man-behind-the-white-guy-blinking-meme-drew-scanlon
 
-## 247. Me and the Boys
-- 2019 snowclone spread and 1967 Spider-Man villain variation: https://knowyourmeme.com/memes/me-and-the-boys
-
-## 248. FBI, Open Up
-- RackaRacka 2016 source video: https://www.youtube.com/watch?v=c46_iL2QqOE
-- Explanation of the raid-clip format and reuse: https://www.onlinesprache.de/memes/fbi-open-up/
